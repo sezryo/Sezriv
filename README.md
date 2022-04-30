@@ -21,6 +21,7 @@ Currently, Sez has a little experience using and "using":
 * Agda (Still a newbie)
 * Coq (Maybe going to learn)
 * Idris (Probably going to learn)
+* Nix lang (Sez is migrating to NixOS)
 * -----------------
 * 🇬🇧 English (TOEFL 113)
 * *Flag* Shanghainese (Sez's mother tonuge. Sez's advocating protecting her.)
