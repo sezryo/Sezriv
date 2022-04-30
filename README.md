@@ -1,5 +1,5 @@
 ### "What Sez prefixes, whence Sez the right to extend her petit subjectivity"
-Here is Sezr-(anything)! (or colloquially Sez) Sez is a 17yo trans girl 🏳️‍⚧️🏳️‍⚧️🏳️‍⚧️ and an upcoming Pure Mathematics Undergrad in University of Cambridge (2022 entry offer holder). 
+Here is Sezr-*anything*, or colloquially Sez! Sez is a 17yo trans girl 🏳️‍⚧️🏳️‍⚧️🏳️‍⚧️ and an upcoming Pure Mathematics Undergrad in University of Cambridge (2022 entry offer holder). 
 
 **Erratum: Sez is a squirrel!**
 
