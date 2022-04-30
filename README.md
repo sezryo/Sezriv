@@ -5,9 +5,13 @@ Here is Sezr-(anything)! (or colloquially Sez) Sez is a 17yo trans girl 🏳️�
 
 ### Sez !
 ✨ Sez loves stuffs that go beyond the existence and triggers Sez's hermeticism and mysticism stimulator. 
+
 ✨ A strong convention of Theology, Phenomenology, Psychoanalysis and other wacky philosophical fields has **been exerting** on Sez.
+
 ✨ Sez has been digging on some **categorical and categorial** stuffs for sezr times and currently is Sez trying to explore some cringe Type Theor*ies*
+
 ✨ Sez loves languages, including languages, languages, languages...
+
 ✨ Sez wants to help more transgender (or ad hoc XYN) cutties to fight for their rights and find their own specific and inspiring subjectivities, egos and gender theories.
 
 ### Sez ::
