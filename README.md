@@ -1,5 +1,5 @@
 ### "What Sez prefixes, whence Sez the right to extend her petit subjectivity"
-Here is Sezr-*anything*, or colloquially Sez! Sez is a 17yo trans girl 🏳️‍⚧️🏳️‍⚧️🏳️‍⚧️ and an upcoming Pure Math Undergrad at Homerton College, U. of Cambridge (2022 offer holder). 
+Here is Sezr-*anything*, or colloquially Sez! Sez is a 17yo trans girl 🏳️‍⚧️🏳️‍⚧️🏳️‍⚧️ and an upcoming Pure Math Undergrad at University of Cambridge (2022 offer holder). 
 
 **\*Erratum: Sez is a squirrel!\***
 
@@ -22,11 +22,11 @@ Sez loves languages, including languages, languages, languages...
 * Nix lang (Sez is migrating to NixOS)
 * -----------------
 * 🇬🇧 English (TOEFL 113)
-* \*Flag\* Shanghainese (Sez's mother tonuge. Sez's advocating protecting her)
-* \*Flag\* Mandarin (Sez doesn't like it but using it to communicate with Sez is okay)
+* \*Flag\* Shanghainese (Sez's mother tonuge)
+* \*Flag\* Mandarin (Sez doesn't like it)
 * 🇩🇪 Deutsche (Probably B1 aber jein)
 * 🎌 Japanese (N3 in ancient time)
-* Ivrit/Hebrew, Latina and Français (Learning, learning, and always barring by ADHD)
+* 🇮🇱 Ivrit (Learning)
 
 ### Sez ?
 You can find a Sez / an artificial Sez / a wild Sez at:
