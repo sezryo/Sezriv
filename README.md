@@ -19,7 +19,7 @@ You can find a Sez / an artificial Sez / a wild Sez at:
 * Here
 * Telegram: @Sezrifter
 * Twitter: @Sezruzette
-* Fediverse: @sezreichkatze@mastodon.social
+* Fediverse: @sezrienne@types.pl
 
 ### Sez...
 Sez might die.
